@@ -1,6 +1,8 @@
 
 # 오역하는 말들 💭
 
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/ec64669e-3692-4dea-84b6-8b7407abbcea" />
+
 
 ## 일정 📅
 
